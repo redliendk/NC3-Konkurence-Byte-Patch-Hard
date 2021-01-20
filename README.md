@@ -1,0 +1,1 @@
+# NC3-Konkurence-Byte-Patch-Hard
